@@ -45,3 +45,4 @@ En conséquence, l'Assemblée Nationale reconnaît et déclare, en présence et 
 Ceci n'est pas un pied de page
 
 Ceci n'est pas un pied de page
+/nArticle 42 : Le gouter devient repas le plus important de la journée
